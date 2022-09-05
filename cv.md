@@ -1,5 +1,7 @@
-#Danil Maiboroda 
+__Danil Maiboroda__ 
+
 _JavaScript front-end developer_
+
 ***
 __Discord: зачем я живу#4745__
 ***
