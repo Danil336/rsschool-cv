@@ -26,8 +26,8 @@ Finished one year of programming college and some short courses. Also spend some
 
 __Languages:__
 
-Native Ukrainian and russian speaker
-English level: B1-B2
-Dutch knowledge: Basics
+Native Ukrainian and russian speaker.
+English level: B1-B2.
+Dutch knowledge: Basics.
 ***
 \^_^
